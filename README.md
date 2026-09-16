@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=PurplePerv&color=A055A6&label=placeholder)
+![](https://komarev.com/ghpvc/?username=PurplePerv&style=for-the-badge&abbreviated=true&color=A055A6&label=placeholder)
 
 
 ‎ <p align="center"> $${\color{Purple}◞⠀ ⠀ ¨Dave⠀ Miller" . DSaF 𓏼⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ 𓏼✚ Introject⠀ ⠀  He / It!}$$ 
