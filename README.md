@@ -8,4 +8,5 @@
 <p align="center">  $${\color{magenta}¨When ‎ you've ‎ bungled ‎ all ‎ your ‎ bangles ‎ and ‎ your ‎ loved ‎ ones‎  have ‎ been ‎ mangled, ¨}$$ 
 <p align="center">  $${\color{magenta}¨listen‎  to ‎ the‎  jingle‎  jangle‎  of‎  my ‎ pinkie ‎ tamborine.‎ ¨}$$ 
 
-‎‎ <p align="center">[STRAWPAGE](https://patheticmeat.straw.page/) [PRONOUNS CC](https://pronouns.cc/@Ikilledthosekidsin1985/PurplePervert)</p> 
+‎‎ <p align="center">[<img width="500" height="347.27" alt="image" src="https://github.com/user-attachments/assets/a694c931-62a2-45a4-a6f9-4d20a86f35f4" />
+](https://patheticmeat.straw.page/) [<img width="500" height="347.27" alt="image" src="https://github.com/user-attachments/assets/2145ef5d-0642-4489-837e-d20721ed0ac8" />](https://pronouns.cc/@Ikilledthosekidsin1985/PurplePervert)</p> 
