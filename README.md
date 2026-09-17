@@ -9,4 +9,5 @@
 <p align="center">  $${\color{magenta}¨listen‎  to ‎ the‎  jingle‎  jangle‎  of‎  my ‎ pinkie ‎ tamborine.‎ ¨}$$ 
 
 ‎‎ <p align="center">[<img width="400" height="277.8" alt="image" src="https://github.com/user-attachments/assets/a694c931-62a2-45a4-a6f9-4d20a86f35f4" />
-](https://patheticmeat.straw.page/) [<img width="400" height="277.8" alt="image" src="https://github.com/user-attachments/assets/2145ef5d-0642-4489-837e-d20721ed0ac8" />](https://pronouns.cc/@Ikilledthosekidsin1985/PurplePervert)</p> 
+](https://patheticmeat.straw.page/) [<img width="400" height="277.8" alt="image" src="https://github.com/user-attachments/assets/f1c266af-462b-4354-9e26-5a331f80463b" />
+](https://pronouns.cc/@Ikilledthosekidsin1985/PurplePervert)</p> 
